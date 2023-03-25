@@ -16,8 +16,7 @@ I love the current me whose pationate about this carrer. I love the challenge of
 leboe-oarabile-godfrey-b1457a1b3
 /"><img align="left" src="https://raw.githubusercontent.com/https://medium.com/@og.leboe/https://medium.com/@og.leboe/main/images/linkedin.svg" alt="Leboe Godfrey | LinkedIn" width="21px"/></a>
 
-<a href="https://medium.com/@calebnyong02"><img align="left" src="https://raw.githubusercontent.com/yushi1007/yushi1007/main/images/medium.svg" alt="Leboe3002 | Medium" width="21px"/></a>
-</br>
+
 - 💬 If you have any question/feedback, please do not hesitate to reach out to me!
 
 ## 🔭 I'm currently working on
