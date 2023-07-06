@@ -12,7 +12,7 @@ I love the current me whose pationate about this carrer. I love the challenge of
 
 ### 🤝 Connect with me:
 
-<a href="https://www.linkedin.com/in/
+<a></a> href="https://www.linkedin.com/in/
 leboe-oarabile-godfrey-b1457a1b3
 /"><img align="left" src="https://raw.githubusercontent.com/https://medium.com/@og.leboe/https://medium.com/@og.leboe/main/images/linkedin.svg" alt="Leboe Godfrey | LinkedIn" width="21px"/></a>
 
